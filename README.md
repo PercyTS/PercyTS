@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @PercyTS.
 - 👀 I’m interested in Coding.
 - 🌱 I’m currently learning  Software Development.
-- 💞️ I’m looking to collaborate in Anything that is IT related.
+- 💞️ I’m looking to collaborate on Anything that is IT related.
 - 📫 How to reach me , ptshonga2000@gmail.com .
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...

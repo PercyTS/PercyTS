@@ -2,7 +2,7 @@
 - 👀 I’m interested in Coding.
 - 🌱 I’m currently learning  Software Engineering.
 - 💞️ I’m looking to collaborate in Anything that is programming related.
-- 📫 How to reach me , percytinashe1@gmail.com .
+- 📫 How to reach me , ptshonga2000@gmail.com .
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
